@@ -1,3 +1,3 @@
 取説はこちらにゃん ฅˆ•ﻌ•ˆฅ
 
-https://aoi-ome.tokyo/nuko/chigura
+https://aoi-ome.tokyo/dewey/chigura
